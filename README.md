@@ -1,3 +1,3 @@
-Just a CS student, don't mind me.
+Just an electronics student, don't mind me.
 
 ![:name](https://count.getloli.com/get/@:Dan3a)
